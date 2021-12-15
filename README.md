@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @kyle3943
+- 👀 I’m interested in learning about cool projects.
